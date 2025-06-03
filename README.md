@@ -1,5 +1,14 @@
 ## Hi there 👋
 
+# Hi there 👋
+## I'm Jigyasha ~ @z_gyasha
+👩 A dedicated student on a captivating journey of exploration 
+<br><br>
+### My values
+🪞 Expresseion as authentic self <br>
+💭 Curious<br>
+🙌🏼 Shared understanding<br> 
+  
 <!--
 **jigyasha-rjb/jigyasha-rjb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
