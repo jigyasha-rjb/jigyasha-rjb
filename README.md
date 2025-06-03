@@ -1,7 +1,5 @@
-## Hi there 👋
-
 # Hi there 👋
-## I'm Jigyasha ~ @z_gyasha
+## I'm Jigyasha Rajbhandari
 👩 A dedicated student on a captivating journey of exploration 
 <br><br>
 ### My values
