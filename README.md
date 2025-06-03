@@ -1,6 +1,6 @@
 # Hi there 👋
 ## I'm Jigyasha Rajbhandari
-👩 A dedicated student on a captivating journey of exploration 
+👩 Captivating journey of exploration 
 <br><br>
 ### My values
 🪞 Expresseion as authentic self <br>
